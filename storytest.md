@@ -16,3 +16,6 @@ Sebastian needed to find another way to do so, and so he also went into the wild
 
 He met there other people as well, who pretended to be master of coding and he felt really insecure. But  they were all a bunch of men pretending to be better than the other groups. So once he realized that ...
 
+he turned into a beautiful unicorn and flew away into the sunset, leaving behind a sick world of bad code and many bugs.
+
+The end!
