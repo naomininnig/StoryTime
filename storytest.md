@@ -11,3 +11,11 @@ and women are strong! Kick the system and its patriarchy in work and be da best!
 And just after 1 month, she became even better than Sebastian and took his job!
 
 And that was okay, because he aswell found a new job where he could earn 100.000.000€ a day for 2 hours of work. But suddenly: the wifi went down!!!! how will poor sebastian get his 100,000,000$ for 2 hours work ?!?!?!?!? .....
+
+Sebastian needed to find another way to do so, and so he also went into the wilderness, having no other choice anymore... 
+
+He met there other people as well, who pretended to be master of coding and he felt really insecure. But  they were all a bunch of men pretending to be better than the other groups. So once he realized that ...
+
+he turned into a beautiful unicorn and flew away into the sunset, leaving behind a sick world of bad code and many bugs.
+
+The end!
