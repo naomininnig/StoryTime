@@ -5,4 +5,9 @@
 - She thought, "Come on, it's not gonna be so hard to do it!, and so she started their trip into the wilderness..."
 -  ... of the world of coding. But then, a wild Sebastian appeared with his 250 years of experience. He said...listen girl! stop buging my system!!!! 
 
+You can do it with or without me because you are a woman, 
+and women are strong! Kick the system and its patriarchy in work and be da best!
 
+And just after 1 month, she became even better than Sebastian and took his job!
+
+And that was okay, because he aswell found a new job where he could earn 100.000.000€ a day for 2 hours of work. But suddenly: 
