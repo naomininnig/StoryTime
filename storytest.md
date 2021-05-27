@@ -8,3 +8,4 @@
 You can do it with or without me because you are a woman, 
 and women are strong! Kick the system and its patriarchy in work and be da best!
 
+And just after 1 month, she became even better than Sebastian and took his job!
