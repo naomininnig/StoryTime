@@ -14,5 +14,5 @@ And that was okay, because he aswell found a new job where he could earn 100.000
 
 Sebastian needed to find another way to do so, and so he also went into the wilderness, having no other choice anymore... 
 
-He met there other people as well, who pretended to (______Next person fills this out_____) and he felt really _______.
+He met there other people as well, who pretended to master of coding and he felt really insecure. But  they were all a bunch of men pretending to be better than the other groups. So once he realized that ...
 
