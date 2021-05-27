@@ -11,3 +11,8 @@ and women are strong! Kick the system and its patriarchy in work and be da best!
 And just after 1 month, she became even better than Sebastian and took his job!
 
 And that was okay, because he aswell found a new job where he could earn 100.000.000€ a day for 2 hours of work. But suddenly: the wifi went down!!!! how will poor sebastian get his 100,000,000$ for 2 hours work ?!?!?!?!? .....
+
+Sebastian needed to find another way to do so, and so he also went into the wilderness, having no other choice anymore... 
+
+He met there other people as well, who pretended to (______Next person fills this out_____) and he felt really _______.
+
